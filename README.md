@@ -8,7 +8,7 @@
 
 **Graduate - Informatics @ AUEB**
 
-:light_bulb: **Currently figuring out my next steps**
+**:light_bulb: Currently figuring out my next steps**
 
 <br>
 
