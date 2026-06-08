@@ -8,7 +8,7 @@
 
 **Graduate - Informatics @ AUEB**
 
-💡 **Currently figuring out my next steps**
+**Currently figuring out my next steps**
 
 <br>
 
